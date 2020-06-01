@@ -1,4 +1,14 @@
 # hello-world
 Just one repository
 
+ Hello People!!!
+ 
+ On my free time I like to binge watchwatch as many movies or shows as I can. 
 
+ I also love spicy food and I put the salsa that my mom makes all the time on everything that I eat.
+
+During my free time I also enjoy Volunteering at the Homeless shelters and at the food banks. 
+
+I also enjoy reading books about diffrent topics. For example I just finished reading Fahrenheit 451.
+      
+This took me quite a while to figure out but i hope I did all right. 
